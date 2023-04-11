@@ -1,4 +1,4 @@
-### Hi there 👋
+### What's up? 👋
 
 
 - 🔭 I’m currently working on living life to the fullest.
